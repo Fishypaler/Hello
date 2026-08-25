@@ -15,11 +15,11 @@ blub blub🐟 .
 <div align=center> 𓏲. ʚ hyperfixation fandoms ɞ : <br>
 
 depth spelunking and PMM (Pupi Midnight Munchies) </div>
-<Details><summary> DNI stuff </summary> 
+<Details><summary> silly </summary> 
 
-  * basic DNI
-  * Uncomfortable with 18+ jokes
-  * Supporting with problematic people.
+  * wonderdream404
+  * artist who loves yapping their oc's
+  * not much talking or dry text
 </details>
 
 --- 
