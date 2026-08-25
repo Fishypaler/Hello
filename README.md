@@ -1,6 +1,6 @@
-<p align=Center><img src="https://files.catbox.moe/y7dy5x.png" width="300" height="300"/> </p>
+<p align=Center><img src="https://files.catbox.moe/lh57py.png" width="500" height="500"/> </p>
 
-<p align=center><a href=https://depthspelunking.miraheze.org/wiki/The_Dealer >"My <ins>aim pretty good</ins>, eh?"</a> </p>
+<p align=center>"oh? hello. welcome to...you know what..i hate my job </p>
 
 blub blub🐟 . 
 ╯ʚmy name is <sup>fishy or fishpaler </sup> *coding is my favorite but struggle lmao* ɞ
@@ -10,7 +10,7 @@ blub blub🐟 .
 ʚ . 'Depth spelunking fans'. ɞ 
 𓆩💤 . ✦ "Dry text" ^_^ . english is not my first language so there's might be a mistake𓏲 . 💤𓆪
 
-💤 . ʚෆɞ I'm making my oc 
+💤 . ʚෆɞ I'm making my oc!! call me <ins>**wonderdream or fishpaler**</ins>^_^
 
 <div align=center> 𓏲. ʚ hyperfixation fandoms ɞ : <br>
 
