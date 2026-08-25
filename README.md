@@ -1,4 +1,4 @@
-<p align=Center><img src="https://files.catbox.moe/0z0day.png" width="300" height="300"/> </p>
+<p align=Center><img src="https://files.catbox.moe/y7dy5x.png" width="300" height="300"/> </p>
 
 <p align=center><a href=https://depthspelunking.miraheze.org/wiki/The_Dealer >"My <ins>aim pretty good</ins>, eh?"</a> </p>
 
