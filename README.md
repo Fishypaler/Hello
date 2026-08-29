@@ -1,9 +1,8 @@
 <p align=Center><img src="https://files.catbox.moe/8hk4t1.gif" width="500" height="500"/> </p>
 
-<p align=center>"orchid mantis is the bestest ive ever seen. "</p>
+<p align=center>$\color{#ff94db}{\text{"orchid mantis is the bestest ive ever seen. "}}$</p>
 
-blub blub🐟 . 
-╯ʚmy name is <sup>fishy or fishpaler </sup> *coding is my favorite but struggle lmao* ɞ
+$\color{#fff9a8}{\text{ 💤 . blub blub my name is fishy or wonder! coding is my favorite but struggle lmao }}$
 
 ✶ . ◠ 💤 wait I'm so cool that I want to backflip (silly) <ins>***SIGN MY STRAWPAGE AND ATABOOK***</ins>!!
 
@@ -32,5 +31,5 @@ depth spelunking and PMM (Pupi Midnight Munchies) </div>
 </p>
 
 <ins>**BYF**</ins>
-> I have did system and ADHD
+> I have did system and ADHD . I'm a dry text so I'm very apologize. 😭
 
