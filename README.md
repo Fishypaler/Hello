@@ -1,6 +1,6 @@
-<p align=Center><img src="https://files.catbox.moe/lh57py.png" width="500" height="500"/> </p>
+<p align=Center><img src="https://files.catbox.moe/8hk4t1.gif" width="500" height="500"/> </p>
 
-<p align=center>"oh? hello. welcome to...you know what..i hate my job" </p>
+<p align=center>"orchid mantis is the bestest ive ever seen. "</p>
 
 blub blub🐟 . 
 ╯ʚmy name is <sup>fishy or fishpaler </sup> *coding is my favorite but struggle lmao* ɞ
