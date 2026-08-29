@@ -1,3 +1,5 @@
+<img src="https://files.catbox.moe/x382ed.png" width="600" height="200"/>
+
 <p align=Center><img src="https://files.catbox.moe/8hk4t1.gif" width="500" height="500"/> </p>
 
 <p align=center>$\color{#ff94db}{\text{"orchid mantis is the bestest ive ever seen. "}}$</p>
@@ -19,6 +21,9 @@ depth spelunking and PMM (Pupi Midnight Munchies) </div>
   * wonderdream404
   * artist who loves yapping their oc's
   * not much talking or dry text
+  * orchid mantis is the beautiful mantis
+  * dealer lover from depth spelunking
+  * confinement and PMM are peak I want to backflip but its small fandom awww man
 </details>
 
 --- 
@@ -33,3 +38,4 @@ depth spelunking and PMM (Pupi Midnight Munchies) </div>
 <ins>**BYF**</ins>
 > I have did system and ADHD . I'm a dry text so I'm very apologize. 😭
 
+<img src=https://files.catbox.moe/opbhey.png width="600" height="200"/>
