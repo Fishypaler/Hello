@@ -1,4 +1,4 @@
-<img src="https://files.catbox.moe/x382ed.png" width="600" height="200"/>
+<p align=center><img src="https://files.catbox.moe/x382ed.png" width="900" height="200"/> </p>
 
 <p align=Center><img src="https://files.catbox.moe/8hk4t1.gif" width="500" height="500"/> </p>
 
@@ -38,4 +38,4 @@ depth spelunking and PMM (Pupi Midnight Munchies) </div>
 <ins>**BYF**</ins>
 > I have did system and ADHD . I'm a dry text so I'm very apologize. 😭
 
-<img src=https://files.catbox.moe/opbhey.png width="600" height="200"/>
+<p align=center><img src=https://files.catbox.moe/opbhey.png width="900" height="200"/> </p>
